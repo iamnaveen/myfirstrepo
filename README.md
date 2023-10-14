@@ -1,5 +1,4 @@
 # Community Classroom is OP
- 
 -GIT and GITHUB course is great. Keep up the good work Kunal.
 
 - Kunal Kushwaha says that this community is amazing.
